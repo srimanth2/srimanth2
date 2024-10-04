@@ -40,4 +40,4 @@ Reach Me
 
 
 •⁠  ⁠📫 How to reach me:
-    - Email: mailto:ssrimanth1234@gmail.com
+    - Email:ssrimanth1234@gmail.com
