@@ -40,4 +40,5 @@ Reach Me
 
 
 •⁠  ⁠📫 How to reach me:
-    - Email:ssrimanth1234@gmail.com
+    - Email:sajjasrimanth@gmail.com
+
